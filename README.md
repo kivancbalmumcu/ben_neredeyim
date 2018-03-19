@@ -9,4 +9,4 @@ ANALIZ RAPORU: http://docdro.id/Nw3UpWahttp://docdro.id/lHOP3Yw
 
 11.03.2018 Raporu:http://docdro.id/lHOP3Yw   http://docdro.id/wRR7d20
 
-18.03.2018 Raporu: http://docdro.id/gpZC6R1
+18.03.2018 Raporu: http://docdro.id/vDGk27E
